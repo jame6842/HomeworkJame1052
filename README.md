@@ -1,2 +1,0 @@
-﻿# HomeworkJame1052
-
